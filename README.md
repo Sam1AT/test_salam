@@ -1,3 +1,3 @@
 ## Salam donya
 
-alan ke ino mibinid man daram test mikonam.
+alan ke ino mibinid man daram test mikonam!
